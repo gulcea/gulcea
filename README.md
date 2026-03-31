@@ -7,7 +7,7 @@
 ---
 
 ### 🚀 About Me
-- 📫 How to reach me: gulcearabaci06l@gmail.com  
+- 📫 How to reach me: gulcearabaci06@gmail.com  
 
 ---
 
